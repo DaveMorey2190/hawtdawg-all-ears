@@ -1,18 +1,19 @@
-\# FAQ
+\# Where do I list my favourite treats?
 
 
 
-\## How many photos can I post?
+Open the Hawt Dawg app an click on "Edit Profile."
+
+Scroll down to the section called "Passions" and tell potential mates and friends all about the treats and toys that make your tail wag.
 
 
 
-We know you want to show off your furry face, so we've given you space to upload up to 15 photos!
+When you are done, click "Save Changes" to show the world.
 
 
 
-For those who are camera-shy, we recommend posting at least one to bring your profile some attention
+We regret that we are unable to offer our customers smell-o-vision at this time. 
 
-
-
-Showcase your best self-whether that means a fresh-from-the-groomer glamour shot or an action shot from your last game of fetch.
+As soon as human technology catches up to dog noses, we'll be sure to add a scent feature to the app.
+In the meantime, why not meet up at the dog park to get a whiff of your new friend
 
